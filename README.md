@@ -10,7 +10,7 @@
 🔹 Networking: Cisco & Database Architecture
 
 🌍 About Me
-🏢 Founder of Telenasi Company
+🏢 Founder of ASTRATECH Company
 🎥 YouTuber | Teaching Tech & Programming 📚
 🌊 Love Traveling, Swimming, Gaming & Reading Novels
 
